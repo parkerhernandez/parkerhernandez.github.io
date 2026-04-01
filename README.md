@@ -1,1 +1,0 @@
-# parkerhernandez.github.io
